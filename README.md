@@ -1,5 +1,5 @@
 Ściana chwały donatów (napiwki) Mjowi
 
-___....----- Ściana Hauwy -----....____ __
-               Molly98__
-         wafel __|¯|__
+....----- Ściana Hauwy -----....<br />
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Molly98<br />
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;wafel __|¯|__
